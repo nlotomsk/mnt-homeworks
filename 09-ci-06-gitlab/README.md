@@ -79,6 +79,8 @@
 
    ![image](https://github.com/nlotomsk/mnt-homeworks/assets/93542374/b9ed20b7-b6f2-4bfd-80da-90ab867acff5)
 
+   ![image](https://github.com/nlotomsk/mnt-homeworks/assets/93542374/4ba9dccf-127f-41c6-8b47-2151c109bbc3)
+
 ## Итог
 
 В качестве ответа пришлите подробные скриншоты по каждому пункту задания:
